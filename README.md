@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...asd
 - 📫 How to reach me ...
 - 😄 Pronouns: ...dh45858wer
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...ewr
 
 <!---54546
 retevebetop/retevebetop is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
