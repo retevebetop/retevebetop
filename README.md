@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @retevebetop
 - 👀 I’m interested in ...fh
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...asd
+- 💞️ I’m looking to collaborate on ...asdewr
 - 📫 How to reach me ...
 - 😄 Pronouns: ...dh45858wer
 - ⚡ Fun fact: ...ewr
