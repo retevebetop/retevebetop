@@ -7,6 +7,5 @@
 - ⚡ Fun fact: ...ewrsfd
 85263
 <!---54546fd21
-retevebetop/retevebetop is a ✨ special ✨ repository because its `README.mddgd` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+retevebetop/retevebetop is a ✨ special ✨ repository because its `README.mddgd` (this file) appears on your GitHub vh
 --->
