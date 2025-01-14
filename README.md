@@ -5,7 +5,6 @@ c- 👋 Hi, I’m @retevebetop
 - 📫 How to reach me ...52wer
 - 😄 Pronouns: ...dh45858wersdf54df
 - ⚡ Fun fact: ...ewrsfd
-85263502456vxzx
-<!---54546fd2145
+85263502456vxzx565565
 retevebetop/retevebetop is a ✨ special ✨ repository because its `README.mddgd` (this file) appears on your іваGitHub vh
 --->
