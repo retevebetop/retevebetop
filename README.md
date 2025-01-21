@@ -2,7 +2,7 @@ fdsg- 👋 Hi, I’m @retevebetop
 - 👀 I’m interested in ...fh
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...asdewr66296996
-- 📫 How to reach me ...52wer
+- 📫 How to reach me ...52wer969
 - 😄 Pronouns: ...dh45858wersdf54df
 - ⚡ Fun fact: ...ewrsfd
 85263502456vxzx565565
