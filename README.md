@@ -3,7 +3,7 @@ fdsg- 👋 Hi, I’m @retevebetop
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...asdewr6629699620
 - 📫 How to reach me ...52wer969
-- 😄 Pronouns: ...dh45858wersdf54df
+- 😄 Pronouns: ...dh45858wersdf54df884
 - ⚡ Fun fact: ...ewrsfd
 85263502456vxzx565565
 retevebetop/retevebetop is a ✨ special ✨ repository because its `README.mddgd` (this file) appears on your іваGitHub vh
