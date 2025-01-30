@@ -1,6 +1,6 @@
 fdsg- 👋 Hi, I’m @retevebetop
 - 👀 I’m interested in ...fh
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...oi
 - 💞️ I’m looking to collaborate on ...asdewr6629699620
 - 📫 How to reach me ...52wer969fsdf
 - 😄 Pronouns: ...dh45858wersdf54df884
