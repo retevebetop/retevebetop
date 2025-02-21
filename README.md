@@ -1,8 +1,8 @@
-fddffdsg- 👋 Hi, I’m @retevebetop
+wefddffdsg- 👋 Hi, I’m @retevebetop
 - 👀 I’m interested in ...fh
 - 🌱 I’m currently learning ...oifdf
 - 💞️ I’m looking to collaborate on ...asdewr6629699620nhhn
-- 📫 How to reach me ...52wer969fsdf141thdf
+- 📫 How to reach me ...rr
 - 😄 Pronouns: ...dh45858wersdf54df884,trt
 - ⚡ Fun fact: ...ewrsfdnbmmewq11441
 85263502456vxzx5655656263277878
