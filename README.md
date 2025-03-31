@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...fh
 - 🌱 I’m currently learning ...oifdf
 - 💞️ I’m looking to collaborate on ...asdewr6629699620nhhnhjhhyhyxcv
-- 📫 How to reach me ...rr5rfffdefdsref
+- 📫 How to reach me ...bcv
 - 😄 Pronouns: ...dh45858wersdf54df884,trtrefgreerxcvcxdsffds
 - ⚡ Fun fact: ...ewrsfdnbmmewq11441bfdfbtwr
 85263502456vxzx5655656263277878
