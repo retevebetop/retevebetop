@@ -1,7 +1,7 @@
 774grswefddffdsg- 👋 Hi, I’m @retevebetop
 - 👀 I’m interested in ...fh
 - 🌱 I’m currently learning ...oifdf
-- 💞️ I’m looking to collaborate on ...asdewr6629699620nhhnhjhhyhyxcv
+- 💞️ I’m looking to collaborate on ...asdewr6629699620nhhnhjhhyhyxcvcvbcbv
 - 📫 How to reach me ...bcveww6
 - 😄 Pronouns: ...dh45858wersdf54df884,trtrefgreerxcvcxdsffds
 - ⚡ Fun fact: ...ewrsfdnbmmewq11441bfdfbtwrjhm
