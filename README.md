@@ -2,7 +2,7 @@ grdfgdfgdgf774grswefddffdsg- 👋 Hi, I’m @retevebetop
 - 👀 I’m interested in ...fhgdrf
 - 🌱 I’m currently learning ...oifdfghnhgnhgnn
 - 💞️ I’m looking to collaborate on ...asdewr6629699620nhhnhjhhyhyxcvcvbcbvgfvc dssd
-- 📫 How to reach me ...bcveww6wscxvxgregjgghjjghasasaa
+- 📫 How to reach me ...bcveww6wscxvxgregjgghjjghasasaafewewffewd
 - 😄 Pronouns: ...dh45858wersdf54df884,trtrefgreerxcvcxdsffdsnhghghghg
 - ⚡ Fun fact: ...ewrsfdnbmmewq11441bfdfbtwrjhmdgfd
 85263502456vxzx5655656263277878wssgergerregerg
