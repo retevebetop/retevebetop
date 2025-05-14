@@ -1,9 +1,9 @@
 grdfgdfgdgf774grswefddffdsg- 👋 Hi, I’m @retevebetopvnbvbv
 - 👀 I’m interested in ...fhgdrf
-- 🌱 I’m currently learning ...oifdfghnhgnhgnn852952
+- 🌱 I’m currently learning ...oifdfghnhgnhgnn852952dsf
 - 💞️ I’m looking to collaborate on ...asdewr6629699620nhhnhjhhyhyxcvcvbcbvgfvc dssd
 - 📫 How to reach me ...bcveww6wscxvxgregjgghjjghasasaafewewffewd
-- 😄 Pronouns: ...dh45858wersdf54df884,trtrefgreerxcvcxdsffdsnhghghghg
+- 😄 Pronouns: ...dh45858wersdf54df884,trtrefgreerxcvcxdsffdsnhghghghgsfvsdvdsv
 - ⚡ Fun fact: ...ewrsfdnbmmewq11441bfdfbtwrjhmdgfddssdsskuukkukugerrregcxc
 85263502456vxzx5655656263277878wssgergerregergcxvvxcvcxvcx
 retevebetop/retevebetop is a ✨ special ✨ repository because its `README.mddg66d` (this file) appears on your1623 іваGitHub hgnvhhgxvc
