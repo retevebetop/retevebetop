@@ -1,6 +1,6 @@
 grdfgdfgdgf774grswefddffdsg- 👋 Hi, I’m @retevebetopvnbvbv
 - 👀 I’m interested in ...fhgdrfdgfxvcvxccxxxn,mmn,n,mn
-- 🌱 I’m currently learning ...oifdfghnhgnhgnn852952dsf
+- 🌱 I’m currently learning ...oifdfghnhgnhgnn852952dsf222135
 - 💞️ I’m looking to collaborate on ...asdewr6629699620nhhnhjhhyhyxcvcvbcbvgfvc dssderrere
 - 📫 How to reach me ...bcveww6wscxvxgregjgghjjghasasaafewewffewd263hjmjhrtthfdssdffdjtytyjyjtyj
 - 😄 Pronouns: ...dh45858wersdf54df884,trtrefgreerxcvcxdsffdsnhghghghgsfvsdvdsv
